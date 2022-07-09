@@ -1,6 +1,6 @@
 ### Olá, Sou Alessandra! 
 
-No momento, sou **Aprendiz Tech** buscando sempre a cada dia a minha **Melhor Versão**!
+No momento, sou **Aprendiz Tech** buscando sempre a cada dia a minha **Evolução**!
 
 Então,
 
